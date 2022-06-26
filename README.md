@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @frnlybox04
 - 👀 I’m interested in programming
-- 🌱 I’m currently learning ...
+- 🌱 I’m currently learning about programming languange
 - 💞️ I’m looking to collaborate on improve my skill
 - 📫 How to reach me? You Can reach me on my social media 
 ig : @iamnot_frenly, twitter : @frenlynoack_04
